@@ -1,2 +1,2 @@
 # hello-world
-Just a sample
+Fuck u all!!!
